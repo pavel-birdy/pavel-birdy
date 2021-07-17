@@ -1,4 +1,5 @@
-### Hi there 👋
+### I don't update this account, do not follow me (pavel-birdy). Follow me on this account https://github.com/watery-desert
+
 
 <!--
 **pavel-birdy/pavel-birdy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
